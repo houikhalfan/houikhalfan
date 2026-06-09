@@ -1,3 +1,3 @@
-👋 Hi, I’m Hajar Ouikhalfan
+ Hi, I’m Hajar Ouikhalfan
 
 
